@@ -1,2 +1,0 @@
-swastupuri.github.io
-====================
